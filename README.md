@@ -1,4 +1,4 @@
-### Hi There, I'm Atharva - aka [website]
+### Hi There, I'm Atharva
 
 ## I'm A Student Who Is Interested In Coding!
 - 🔭 I'm Currently A Student
